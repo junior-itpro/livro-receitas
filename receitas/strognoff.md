@@ -33,7 +33,7 @@ Incorpore delicadamente o NESTLÉ Creme de Leite e retire do fogo antes de ferve
 
 Sirva com arroz branco.
 
-
+Receita atualizada
 
 
 
